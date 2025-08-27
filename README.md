@@ -9,5 +9,5 @@ I also have a knack for radios.
 - Former Administrator of [/r/robloxhackers](https://www.reddit.com/r/robloxhackers) (2023-2024)
 - Former Administrator of [/r/ROBLOXExploiting](https://www.reddit.com/r/ROBLOXExploiting (2023-2024)
 
-- ## Contact
+## Contact
 - [@richoffxsolla](https://discord.com/users/700027232986464296) (Discord)
