@@ -1,16 +1,13 @@
-## Hi there 👋
+## Hey! 👋
+I'm a full stack developer based in the Bronx, New York.
+I enjoy developing software for people, regardless of monetization.
+I also have a knack for radios.
 
-<!--
-**mischargings/mischargings** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+## Positions
+- Lead Developer of [Pekora.zip](https://pekora.zip) (2025-present)
+- Founder & former CEO of [Datawave](https://csint.org) (2024-2025)
+- Former Administrator of [/r/robloxhackers](https://www.reddit.com/r/robloxhackers) (2023-2024)
+- Former Administrator of [/r/ROBLOXExploiting](https://www.reddit.com/r/ROBLOXExploiting (2023-2024)
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- ## Contact
+- [@richoffxsolla](https://discord.com/users/700027232986464296) (Discord)
