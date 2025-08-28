@@ -5,7 +5,7 @@ I also have a knack for radios.
 
 ## Positions
 - Lead Developer of [Pekora.zip](https://pekora.zip) (2025-present)
-- Former Support Staff of [Coinwave](https://coinwave.gg) (2025-2025)
+- Former Support Staff of [CoinWave](https://coinwave.gg) (2025-2025)
 - Founder & former CEO of [Datawave](https://csint.org) (2024-2025)
 - Former Moderator of Archived Market (2024-2024)
 - Former Administrator of [/r/robloxhackers](https://www.reddit.com/r/robloxhackers) (2023-2024)
