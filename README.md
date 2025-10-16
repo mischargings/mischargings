@@ -10,5 +10,7 @@ I will be moving onto more ventures. If you ever need to reach me in any way, yo
 Thank you for everything.
 
 Regards,
+
 mischargings
+
 16/10/2025 @ 19:14
