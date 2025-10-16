@@ -7,8 +7,8 @@ I'm sorry to all of those who I've wronged. I apologize if I have hurt you in an
 
 I will be moving onto more ventures. If you ever need to reach me in any way, you can email me at [mischargings@proton.me](mailto:mischargings@proton.me). I may not always respond, but I'll always read them.
 
-Thank you for everything.
-
-Regards,
-mischargings
+Thank you for everything.<br>
+<br>
+Regards,<br>
+mischargings<br>
 16/10/2025 @ 19:14
